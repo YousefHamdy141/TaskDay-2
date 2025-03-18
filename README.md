@@ -1,1 +1,5 @@
-# TaskDay-2
+![Screenshot 2025-03-18 224658](https://github.com/user-attachments/assets/309024fc-0973-4343-8f8e-bcc34573c3d2)
+![Screenshot 2025-03-18 224708](https://github.com/user-attachments/assets/019db7cc-dd14-4ef3-945e-9c1f89b79f0f)
+![Screenshot 2025-03-18 224716](https://github.com/user-attachments/assets/a00856d9-a085-48d5-9313-262fa42d0d6c)
+![Screenshot 2025-03-18 224724](https://github.com/user-attachments/assets/a31b626b-f521-4bd9-92b0-f20fab9a89ed)
+![Screenshot 2025-03-18 224732](https://github.com/user-attachments/assets/2ffa6ff2-3c34-4ace-925b-c43f7c6339af)
